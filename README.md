@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **iashu1@outlook.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1oH3oYhR-1W20WTW46exq6kBhH2mllWUC/view?usp=share_link](https://drive.google.com/file/d/1oH3oYhR-1W20WTW46exq6kBhH2mllWUC/view?usp=share_link)
+- 📄 Know about my experiences [CLICK HERE](https://drive.google.com/file/d/1Nct7agcyQ-hTmVjZRPcrF4ct59-3fYqm/view?usp=sharing)
 
 - ⚡ Fun fact **I love reading Hindi Novels and exploring new Animes.**
 
